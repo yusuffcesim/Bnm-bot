@@ -1,2 +1,0 @@
-# Bnm-bot
-Chjj
